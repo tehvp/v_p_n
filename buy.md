@@ -9,9 +9,9 @@
 </a>
  <br>  <br> 
    
-  🔵 و یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:
+  🔵 و یا برای خرید فیلترشکن زیر پیام دهید:
   <br> <br> 
-<a href="https://t.me/teh250"  target="_blank">teh</a>
+<a href="https://www.goftino.com/c/VkG3F9"  target="_blank">شروع چت آنلاین و خرید وی پی ان</a>
 
   <br> <br> <br> <br> اتصال دو کاربر همزمان <br> 
 <br> 
