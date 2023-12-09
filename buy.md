@@ -11,7 +11,7 @@
    
   🔵 و یا برای خرید فیلترشکن به آی دی تلگرام زیر پیام دهید:
   <br> <br> 
-<a href="tg://resolve?domain=teh250"  target="_blank">teh</a>
+<a href="tg://resolve?domain=teh250"  target="_blank"> teh</a>
 
   <br> <br> <br> <br> 
 
